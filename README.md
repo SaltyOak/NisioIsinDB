@@ -2,7 +2,7 @@
 База работ японского писателя NisioisiN
 
 Katanagatari / Истории Мечей
-* 01. Katanagatari Zettou Kanna / ENG
+* 01 Katanagatari Zettou Kanna / ENG
 * Kyotou Yasuri - A Katanagatari Prequel / ENG
 * Towazugatari - A Katanagatari drama CD / (4/5) ENG	
 
