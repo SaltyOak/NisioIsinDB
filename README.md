@@ -11,6 +11,8 @@ Okitegami Kyouko / Окитегами Кьёко
 * 01 The Memorandum of Okitegami Kyouko / Записная Книжка Окитегами Кьёко ENG/RUS
 * 02 The Testimonial of Okitegami Kyouko / ENG 
 
+Shin Honkaku Mahou Shoujo Risuka / Девочка-Волшебница Ризука
+* 01 New Authentic Magical Girl Risuka / ENG (SCAN)
 
 JoJo's Bizarre Adventure - Over Heaven / ENG
 
