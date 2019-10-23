@@ -1,5 +1,5 @@
 # NisioIsinDB
-База работ NisioisiN
+База работ японского писателя NisioisiN
 
 Katanagatari / Истории Мечей
 * Kyotou Yasuri - A Katanagatari Prequel / ENG
