@@ -2,8 +2,8 @@
 База работ NisioisiN
 
 Katanagatari / Истории Мечей
-* Kyotou Yasuri - A Katanagatari Prequel
-* Towazugatari - A Katanagatari drama CD (4/5) ENG	
+* Kyotou Yasuri - A Katanagatari Prequel / ENG
+* Towazugatari - A Katanagatari drama CD / (4/5) ENG	
 
 
 Okitegami Kyouko / Окитегами Кьёко
